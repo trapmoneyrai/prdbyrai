@@ -1,3 +1,3 @@
 # prdbyrai
 
-for 14G x Zuri
+for I4G x Zuri
